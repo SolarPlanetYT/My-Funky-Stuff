@@ -1,2 +1,2 @@
 # My-Funky-Stuff
-Credit if used! ^^
+Friday Night Funkin (+Bluey) Thingies
